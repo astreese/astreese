@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @astreese
+- 👋 Hi, I’m Reese(@astreese)
 - 👀 I’m interested in astronomy
 - 🌱 I’m currently learning scientific data analysis
 - 📫 How to reach me put a light in a cloud
